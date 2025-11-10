@@ -1,0 +1,7 @@
+# DANE-BUG-WA
+
+<body>
+  <div>
+  <marquee>UNTUK MENDAPATKAN LINK,KE NOMOR +62 0852-1178-4196 | SIMPAN DENGAN NAMA ???</marquee>
+ </div>
+</body>
